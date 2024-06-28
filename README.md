@@ -1,1 +1,1 @@
-Discord: Sludge McGunkman (VED)#8072
+Discord: sludge_mcgunkman
